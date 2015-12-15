@@ -3,7 +3,7 @@ published: true
 title: Investra Link, Asuransi Terbaik dalam Perlindungan Kesehatan
 layout: post
 ---
-<a href="http://cdnweb01.wikitree.co.kr/webdata/editor/201211/22/img_20121122141226_2916cf36.jpg">
+<img src="http://cdnweb01.wikitree.co.kr/webdata/editor/201211/22/img_20121122141226_2916cf36.jpg">
 
 Kesehatan dewasa ini adalah sesuatu yang mahal. Bagaimana tidak, sesorang yang sakit dan membutuhkan pengobatan dan perawatan rumah sakit harus mengeluarkan biaya yang tidak sedikit, terlebih lagi apabila harus mendapatkan perawatan opname yang memang sangat membutuhkan biaya yang besar. Asuransi terbaik merupakan sesuatu yang penting yang harus anda gunakan sebagai perlindungan dalam kesehatan anda. Asuransi <a href="http://www.commlife.co.id">www.commlife.co.id</a> menjadi sesuatu yang dapat menolong anda disaat anda terserang penyakit dan menjadi perlindungan kesehatan bagi anda disaat yang tepat. Terserang penyakit memang suatu yang tidak diinginkan dan diharapkan semua orang. Namun siapa sangka, seseorang yang telah hidup dengan gaya hidup sehatpun dapat terserang penyakit secara mendadak. Jadi tidak ada yang bisa menjamin sesorang akan selalu sehat, jadi menggunakan asuransi adalah hal yang tepat sebagai perlindungan kesehatan dan kemungkinan kerugian material yang anda dapatkan.
 
