@@ -1,0 +1,12 @@
+---
+published: true
+title: Kategori Fungsi Alat musik
+layout: post
+---
+Terdapat beberapa jenis instruen musik juga terdapat beberapa kategori dari alat musik. Pertama adalah kategori alat musik melodis. Dalam kategori ini alat musik kembali dibagi menjadi tiga. umumnya Alat musik tiup, petik, dan gesek menjadi alat musik yang dikenal. Pengertian alat musik melodis adalah alat musik yang memiliki nada tetapi tidak bisa dimainkan secara tunggal. Alat musik ini jika dimainkan secara tunggal akan sangat terasa hampa musiknya. Karena alat musik ini harus dimainkan bersamaan dengan alat musik lainnya.
+
+<img src="http://orpheusandlyra.tripod.com/sitebuildercontent/sitebuilderpictures/ukraine_modern_music.jpg">
+
+Dengan kata lain, alat musik ini tidak bisa menghasilkan lebih dari satu nada secara bersamaan. Biola sebagai contoh, biola memang menghasilkan nada yang sangat menyayat dan sendu. Tetapi nada itu tidak akan menjadi indah jika tidak di iringi oleh alat musik lainnya. Kategori yang kedua adalah alat musik harmonis. Alat musik ini digunakan untuk mengisi bagian-bagian harmoni dari sebuah lagu. Ibaratnya adalah gula, maka intrumen musik ini adalah pemanis dari sebuah lagu. Alat musik ini mampu memaikan lebih dari tiga nada meskipun bermain secara tungal. Alat musik ini akan membuat musik tetap terasa lengkap meskipun dimainkan tunggal. Kompleksitas nada yang dihasilkannya membuat alat musik ini bisa dimaikan bersama ketegori alat musik lainnya ataupun tunggal. Gitar termasuk dalam kategori alat musik harmonis. Banyak musisi yang hanya bernyanyi dan bermain gitar tetapi karyanya tetap enak untuk didengarkan.
+
+Inilah yang menjadi kelebihan dari alat musik kategori ini. Terakhir adalah <a href="http://id.yamaha.com/id/products/musical-instruments/guitars-basses/el-ac-guitars/">harga gitar</a> kategori alat musik ritmis. Disebut dengan alat musik ritmis adalah karena fungsinya yang hanya sebagai pengatur tempo dari sebuah musik. Drum, triangle, gendang adalah beberapa contoh dari ketegori ini. Alat musik ini tidak menghasilkan bunyi yang bernada atau tidak bernada. Misalkan, sebuah lagu yang di isi permainan drum maka tempo dari lagu tersebut berada dipenguasaan pemain drumnya. Jika pemain drumnya menaikan kecepatan pukulannya secara otomatis tempo lagunya pun berubah menjadi lebih cepat disesuaikan dengan permainan drum tersebut.
