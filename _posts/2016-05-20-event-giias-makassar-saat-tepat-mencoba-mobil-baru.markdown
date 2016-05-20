@@ -5,7 +5,7 @@ layout: post
 ---
 Bagi seseorang yang ingin membeli mobil, tentu ingin merasakan mobil baru yang ingin dibelinya sebelum benar-benar membawanya pulang ke rumah. Nah, di event tahunan GIIAS di Makassar, kita bisa mencoba beragam <a href="http://daihatsu.co.id/product/ayla">mobil murah</a> baru dari berbagai merk. Tertarik? Hadiri dong eventnya.
 
-<img src="http://sulsel.pojoksatu.id/wp-content/uploads/2015/11/tantangan-4x4-730x355.jpg">
+<img src="http://content.icarcdn.com/styles/article_thumbnail/s3/field/article/th/2015/giias-makassar.jpg">
 
 Bermacam aktivitas didatangkan GIIAS Makassar 2016, termasuk juga session test drive. Aktivitas ini dapat memberi pengalaman lebih pada beberapa peserta yang menginginkan beli mobi. 
 
