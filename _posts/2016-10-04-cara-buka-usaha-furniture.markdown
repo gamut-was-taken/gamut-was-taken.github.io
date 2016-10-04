@@ -2,6 +2,7 @@
 published: true
 title: Cara Buka Usaha Furniture
 layout: post
+permalink: buka-usaha-furniture
 ---
 Tiap-tiap usaha yang ditangani tentu mempunyai kesempatan. Tinggal kita lihat apakah kesempatan besar atau kecil untuk kita. Belum pasti yang awalannya tampak begitu berpeluang juga mempunyai kesempatan yang sama untuk kita. Dapat begitu berpeluang untuk orang lain, tetapi tak pas untuk diri kita. Ada banyak hal yang memengaruhi kesempatan satu usaha. Semasing orang miliki ketrampilan serta kondisi yang tidak sama. Begitu halnya usaha furniture rental. Tak kebanyakan orang dapat kerjakan usaha ini serta berpeluang besar untuk memperoleh untuk yang banyak. 
 
