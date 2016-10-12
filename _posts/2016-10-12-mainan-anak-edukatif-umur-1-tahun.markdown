@@ -2,6 +2,7 @@
 published: true
 title: Mainan Anak Edukatif Umur 1 Tahun
 layout: post
+permalink: mainan-anak-edukatif
 ---
 Memiliki anak merupakan hal yang diinginkan oleh semua orang yang baru saja menikah. Anak memang menjadi anugerah bagi pasangan suami istri. Pasalnya dengan kehadiran anak, pasangan suami istri bisa saling menambah kasih sayang dan kesetiaan. Betapa tidak, ketika pasangan suami istri memiliki anak, maka keduanya akan saling membantu dalam mengurus anak. Tidak mudah loh mengurus anak itu. Banyak sekali yang harus dipelajari dan yang harus dikorbankan. Karena mendidik anak adalah kewajiban bagi orang tua dan butuh banyak sekali ilmu. Begitu juga dalam mengurus anak, banyak sekali hal yang dikorbankan; waktu, uang, dan tenaga pun habis untuk membesarkan anak.
 
